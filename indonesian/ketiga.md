@@ -1,0 +1,1 @@
+Anda adalah orang yang akan mencari pilihan yang ada, tetapi tidak akan merisaukan pilihannya.
